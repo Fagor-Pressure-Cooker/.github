@@ -11,7 +11,7 @@
 
 <p>The <strong>Fagor Pressure Cooker</strong> is a well-known kitchen appliance that offers efficient, safe, and versatile cooking. Designed to save time and energy while maintaining food quality, it is a top choice for home cooks and professional chefs alike.</p>
 
-[**✅ Buy No at Amazon**](https://amzn.to/4kI8qtF)
+[**✅ Buy Now at Amazon**](https://amzn.to/4kI8qtF)
 
 <h2>Why Choose a Fagor Pressure Cooker?</h2>
 
@@ -27,7 +27,7 @@
     <li><strong>Compatibility</strong>: Works on all stovetops, including gas, electric, and induction.</li>
 </ul>
 
-[**✅ Buy No at Amazon**](https://amzn.to/4kI8qtF)
+[**✅ Buy Now at Amazon**](https://amzn.to/4kI8qtF)
 
 <h2>Pros & Cons of the Fagor Pressure Cooker</h2>
 
